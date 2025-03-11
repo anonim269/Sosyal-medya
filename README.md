@@ -1,1 +1,20 @@
-# Sosyal-medya
+shsggsvsvsvsggdd
+acsar.guzeli
+efso.erdem
+gamze.teke
+esra_yvn1
+aysimammm__
+bigktikkkkk__yaaaaaaa
+obir_efsane10
+o1.efsane1
+fatma.🎀
+ortakhesap1
+serkan.esra1
+yelizz&kaaan
+caner_sevda
+aysima💫
+sarkisla.itiraf
+azad_demir
+ozkan&igrek
+ezra_gate
+ezer_52.3
